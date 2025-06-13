@@ -1,0 +1,1 @@
+This is just practice for learning how to use Git. Idk why I spent so long pushing it off. It's not too hard. But maybe I'm just familiar with computers now. I don't really know what else to put here. I just wanted to make it really long for no particular reason. I quit my job yesterday.
